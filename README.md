@@ -1,0 +1,1 @@
+# szbpatux.github.io
